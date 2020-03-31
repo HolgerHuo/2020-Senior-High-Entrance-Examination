@@ -23,7 +23,7 @@ Mar. 31 2020
 
 Email: [admin@holger.net.cn](mailto:admin@holger.net.cn)
 
-Telegram: [Holger Huo](https://t.me/Holger%20Huo)
+Telegram: [Holger Huo](https://t.me/holgerhuo)
 
 Website: [holger.net.cn](https://holger.net.cn)
 
